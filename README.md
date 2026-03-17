@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Love like a River is my counseling method, drawn from ancient scripture and philosophy, and modern science.
+
+Mariner Folk
+marinerfolk@gmail.com
